@@ -1,4 +1,7 @@
-# MY EXPERIENCE AT GNDEC 
+# MY EXPERIENCE AT GNDEC
+
+![](GNDEC1.png)
+
 - __Day 1__
 > INDUCTION PROGRAM DAY
 
@@ -16,7 +19,8 @@ Then one more alumna, [S.Rajeshwar Singh Sidhu](https://fb.watch/tigzIRdD9R/), S
 
 Then, the [Day 2 Of INDUCTION PROGRAM](https://fb.watch/tigAJvY2Z7/) got over.
 
-<!--FRom here code is being edited-->
+![](gndec2.jpeg)
+
 - __Day 2__
 > INDUCTION PROGRAM  
 
@@ -68,6 +72,8 @@ Then came a turning point for me and some of more students like me. [Dr. Hardeep
 
 After, ending sessiion, he proposed all of us that they are giving a chance to 10 students to get mentored under him and get complete guidence about coding. Without any doubt, I went forward to sir to get this oppurtunity. But more that 50 students wanted to be a part of it. So, sir decided to make Telegram group and I entered the group. Sir gave us a task which was to make portfolio using markdown, which I partially completed at that time but now I have done it.
 And, by taking this goal, I came home and dedicatedly started doing it. I learned markdown and started making the project but I was unable to make my project live at Github pages. But, I sent a pdf format of my work. Then, my day ended and I was ready for the next day as my first day as classes was going to happen.    
+
+![](alumni_home.jpeg)
 
 - __Day 3__
   
