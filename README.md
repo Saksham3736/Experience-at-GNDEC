@@ -80,7 +80,8 @@ I personely really enjoyed it. Then, I went for my second lecture which was of m
 
 Then, I went to a [canteen](https://www.instagram.com/p/CGc3dWkghg9/?utm_source=ig_web_copy_link) for lunch. After lunch, there was a breifing class of [Rai sir](https://gndec.ac.in/faculty/?id=268). There he breifed us about how can we upload our file to Github and make a live link of it. I got a very good chance to correct my mistakes. Also, sir mentioned that however my task was not fully completed but my efforts were good enough. This made me feel so good and I decided that, by hook or crook, I will complete it. Then, finally, I completed it.
 
+# LEARNING
 
+Learning from all this is not too much, but it simply says that, all the goals, aims, tasks, everything depends only and only on us. It depends how much dedicated we are for it, how much discplined, how much hunger is present and most imporatantly the "WHY". So, from this experience, you all can have learning ofone word which is:
 
-
-
+__SELF-DISCIPLINE and SELF-CONFIDENCE__
