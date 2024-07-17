@@ -1,7 +1,4 @@
-# MY EXPERIENCE AT GNDEC
-
-![](GNDEC1.png)
-
+# MY EXPERIENCE AT GNDEC 
 - __Day 1__
 > INDUCTION PROGRAM DAY
 
@@ -19,8 +16,7 @@ Then one more alumna, [S.Rajeshwar Singh Sidhu](https://fb.watch/tigzIRdD9R/), S
 
 Then, the [Day 2 Of INDUCTION PROGRAM](https://fb.watch/tigAJvY2Z7/) got over.
 
-![](gndec2.jpeg)
-
+<!--FRom here code is being edited-->
 - __Day 2__
 > INDUCTION PROGRAM  
 
@@ -73,8 +69,6 @@ Then came a turning point for me and some of more students like me. [Dr. Hardeep
 After, ending sessiion, he proposed all of us that they are giving a chance to 10 students to get mentored under him and get complete guidence about coding. Without any doubt, I went forward to sir to get this oppurtunity. But more that 50 students wanted to be a part of it. So, sir decided to make Telegram group and I entered the group. Sir gave us a task which was to make portfolio using markdown, which I partially completed at that time but now I have done it.
 And, by taking this goal, I came home and dedicatedly started doing it. I learned markdown and started making the project but I was unable to make my project live at Github pages. But, I sent a pdf format of my work. Then, my day ended and I was ready for the next day as my first day as classes was going to happen.    
 
-![](alumni_home.jpeg)
-
 - __Day 3__
   
   > Classes Day
@@ -86,8 +80,60 @@ I personely really enjoyed it. Then, I went for my second lecture which was of m
 
 Then, I went to a [canteen](https://www.instagram.com/p/CGc3dWkghg9/?utm_source=ig_web_copy_link) for lunch. After lunch, there was a breifing class of [Rai sir](https://gndec.ac.in/faculty/?id=268). There he breifed us about how can we upload our file to Github and make a live link of it. I got a very good chance to correct my mistakes. Also, sir mentioned that however my task was not fully completed but my efforts were good enough. This made me feel so good and I decided that, by hook or crook, I will complete it. Then, finally, I completed it.
 
-# LEARNING
+# LEARNING 1 :-
 
 Learning from all this is not too much, but it simply says that, all the goals, aims, tasks, everything depends only and only on us. It depends how much dedicated we are for it, how much discplined, how much hunger is present and most imporatantly the "WHY". So, from this experience, you all can have learning ofone word which is:
 
 __SELF-DISCIPLINE and SELF-CONFIDENCE__
+
+- __Day 4__
+
+> INDUCTION PROGRAM 
+ 
+The day began with a fear of fever as I was suffering from cough and cold but still made up my mind ready to go to college whatever it takes. So, today was again our "INDUCTION PROGRAM". 
+
+The day started with the lecture of [Dr. Randhir Singh](https://gndec.ac.in/faculty/?id=75) sir, associate professor, breifed us about the major tasks which we all students have to do. He said that all the students must have to give Profficiency Test of English, Profficiency Test of Mathematics, Report making about your experience at GNDEC and INDUCTION PROGRAM and a E-certificate about any skill. These all tasks are useless for some people, but from my perspective, these all things can uplift are potential in a very good way. He also instructed us about the [Github pages](https://github.com/) and how to make repositry on it in detail. he also mentioned about [MARKDOWN](https://www.markdownguide.org/cheat-sheet/).
+
+
+Then, [Dr. Pyare Lal Garg](https://www.bing.com/images/search?view=detailV2&ccid=FvnpjWYN&id=60625B6AF9733B34B243B4FFA7EF1C044508DC71&thid=OIP.FvnpjWYNRYq7VqBoOxI5lAHaEK&mediaurl=https%3a%2f%2fi.pinimg.com%2f736x%2fe9%2f6e%2f3d%2fe96e3d7c84fad50246b9963489ed450a.jpg&exph=414&expw=736&q=Dr.+Pyare+lal+gndec&simid=607996760932097556&FORM=IRPRST&ck=529DE4ABC544CB3097A0601636BB48A1&selectedIndex=0&itb=0&ajaxhist=0&ajaxserp=0), adviser to Punjab Congress president Navjot Singh Sidhu. Garg, 73, who retired as professor of paediatric surgery in 2002 and is known for his outspoken nature, has worked both with the Shiromani Akali Dal-Bharatiya Janata Party (SAD-BJP) as well as Congress governments in Punjab.
+
+First, He greeted everyone with good wishes and blessings, also feel grateful to GNDEC and faculty members of the college for giving him the oppurtunity to speak in GNDEC college amongst the students. Seeing the students, he reminded his old days and said about teaching which was full of togetherness in his time. Many new changes have been implemented in the world but human behaviour is still same and ability and power of attaining courage to be great , not just to be good or average. 
+
+__He said that the tantrums, bad things and bad thoughts of people about us was in their time also which makes him to question his integrity. He mentioned that we all are same as all others both at mentally and physically but the thing which is the differentiater is the change we implant both in ourselve and in surroundings. By saying that now he will going to give us a piece of his all learnings, he started to resist his old stories which were inspirational and motivational.__ 
+
+He said that teacher is just like a _diya_ which means the teachers overcomes many problems in order to enlighten the students, many times a teacher sacrifices something, due to which the status of a teacher rises up very high in everyone's eye. But no one realises it now, but in future we are able to relate it with us. The teachings we got from the teachers is not a favour on students but blessings given by our respected teachers. We all got this as inheritance.Also, Teachers are responsible to give students the required teachings on time.
+
+ __He also illustrated that just like trees which do not eat their own fruits, rivers and lakes which cannot drink it's own water, in the same way teachers teachings are for students not for their own use.So, we all must respect it.__
+
+He said that we should not get afraid of new things, rather get strengthen by doing them. Inner strength and powers has so much power that the external problems are nothing infront of it. He said that this college knows everything, So we can fully trust all the teachers and members of this college. He said that this college is way more different from the other government colleges.
+
+ He said that if a new students came up to him, whether he knows something or not, he will see that what he knows and how he respond to other things. Everyone fears first, maybe less or more, but humans have power to be strong in any conditions.
+
+ __He also mentioned about the "NEET SCAM" problem which is really disheartening problem because the students who tried their best got nothing which makes their kills their confidence and faith. He said the servicesgiven by the NTA is wrong and we all have to improve them. He mentioned their are many oppurtunities, so we have to be ready in advance in order to grab them. Eveyone fails, got stressed, experience anxiety and depression but still they manage, do efforts and achieve what they want to.__
+
+_Many people come in our life, some of which came to demotivate us, make us feel low and some came to help us, guide us, become our well-wishers, support us. That's why, we should never look whose gone but to look on whose still up there for you_
+
+Many stories, teachings and many more things sir gave us by this speech which means a lot to me.
+
+
+Our next speaker of the day was, [Mr. Sony Goyal](https://www.missioncat.in/assets/img/others/sonygoyal.jpg), have done engineering 1997-2004, which was 7 years of experience, renowned as the favourite [CAT](https://www.google.com/search?q=cat+full+form&sca_esv=e59d9031b627fbb2&sca_upv=1&rlz=1C1CHBF_enIN1051IN1051&sxsrf=ADLYWIKhpk0dmi4Vf6Dz4fe-dxt9REvwvg%3A1721144232690&ei=qJOWZuDzKZ-8seMPzNe28AY&oq=CAT&gs_lp=Egxnd3Mtd2l6LXNlcnAiA0NBVCoCCAAyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyDRAAGIAEGLADGEMYigUyDRAAGIAEGLADGEMYigUyDRAAGIAEGLADGEMYigUyDRAAGIAEGLADGEMYigUyDhAAGLADGOQCGNYE2AEBMg4QABiwAxjkAhjWBNgBATIOEAAYsAMY5AIY1gTYAQEyExAuGIAEGLADGEMYyAMYigXYAQIyExAuGIAEGLADGEMYyAMYigXYAQIyExAuGIAEGLADGEMYyAMYigXYAQIyExAuGIAEGLADGEMYyAMYigXYAQJIpQtQAFgAcAF4AZABAJgBAKABAKoBALgBAcgBAJgCAaACCpgDAIgGAZAGE7oGBggBEAEYCboGBggCEAEYCJIHATGgBwA&sclient=gws-wiz-serp) educator on youtube. He brings over 15 years of experience to help you to crack [CAT](https://www.google.com/search?q=cat+full+form&sca_esv=e59d9031b627fbb2&sca_upv=1&rlz=1C1CHBF_enIN1051IN1051&sxsrf=ADLYWIKhpk0dmi4Vf6Dz4fe-dxt9REvwvg%3A1721144232690&ei=qJOWZuDzKZ-8seMPzNe28AY&oq=CAT&gs_lp=Egxnd3Mtd2l6LXNlcnAiA0NBVCoCCAAyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyDRAAGIAEGLADGEMYigUyDRAAGIAEGLADGEMYigUyDRAAGIAEGLADGEMYigUyDRAAGIAEGLADGEMYigUyDhAAGLADGOQCGNYE2AEBMg4QABiwAxjkAhjWBNgBATIOEAAYsAMY5AIY1gTYAQEyExAuGIAEGLADGEMYyAMYigXYAQIyExAuGIAEGLADGEMYyAMYigXYAQIyExAuGIAEGLADGEMYyAMYigXYAQIyExAuGIAEGLADGEMYyAMYigXYAQJIpQtQAFgAcAF4AZABAJgBAKABAKoBALgBAcgBAJgCAaACCpgDAIgGAZAGE7oGBggBEAEYCboGBggCEAEYCJIHATGgBwA&sclient=gws-wiz-serp) secure spot in the top [IIMs](https://www.google.com/search?q=IIM&sca_esv=e59d9031b627fbb2&sca_upv=1&rlz=1C1CHBF_enIN1051IN1051&sxsrf=ADLYWIKdUjKJL6yFQBghrRZ_0isqZXYCLQ%3A1721144236926&ei=rJOWZvajOLinseMPs8CN0AE&ved=0ahUKEwj2qeX28auHAxW4U2wGHTNgAxoQ4dUDCA8&uact=5&oq=IIM&gs_lp=Egxnd3Mtd2l6LXNlcnAiA0lJTTISEAAYgAQYsQMYQxiKBRhGGPsBMgoQABiABBhDGIoFMgoQABiABBhDGIoFMggQLhiABBixAzINEAAYgAQYsQMYQxiKBTINEAAYgAQYsQMYQxiKBTIKEAAYgAQYQxiKBTIKEAAYgAQYQxiKBTIKEAAYgAQYQxiKBTINEAAYgAQYsQMYQxiKBTIeEAAYgAQYsQMYQxiKBRhGGPsBGJcFGIwFGN0E2AECSI0qUOMGWLgncAJ4AZABA5gB3AGgAYULqgEFMC43LjK4AQPIAQD4AQGYAgagAuoFqAIUwgIKEAAYsAMY1gQYR8ICDRAAGIAEGLADGEMYigXCAgUQABiABMICChAAGIAEGAIYywHCAgcQIxgnGOoCwgITEAAYgAQYQxi0AhiKBRjqAtgBAcICChAjGIAEGCcYigXCAg8QABiABBhDGIoFGEYY-wHCAhAQABiABBixAxhDGIMBGIoFwgIbEAAYgAQYQxiKBRhGGPsBGJcFGIwFGN0E2AECmAMJiAYBkAYKugYGCAEQARgBugYGCAIQARgTkgcFMi4yLjKgB55Y&sclient=gws-wiz-serp). He mentioned a word __"JOSH"__ which means according to him was __"Journey To Success Highway"__.
+He came up with a mantra for us which was " 1 2 Ka 4", which seemed really interesting. He started by saying that your success decides on your inner stregth. Give your 100% to everything. He also said that while giving your introduction about high school, instead of saying Non-medical, say Science stream. 
+
+He said that students must study with full focus, interest adn dedication. The 2nd _mantra_ he mentioned was " Love what you do, Do what you love", he meant by this that everything we do, we should do not only with logic but also with seriousness. He said that mind workes at it's highest peak is when it is relaxed not when it is stressed out from the problems. He also suggested that students must play everyday for about 30-45 min, outside games, in order to keep ourselves physically upto-date and get our mind in relax mode. 
+
+Then, he mentioned about how we should work in these 4 years by reminding this _mantra_, that is :
+
+- __L__ EARN
+- __I__ NQUIRE
+- __F__ UTURE
+- __E__ XPLORE
+
+Which combines into __"LIFE"__. He also mentioned about __"SEA"__, that is:
+
+- __S__ COPE
+- __E__ VALUTION
+- __A__ WARENESS
+  
+  He sais that India has the greater and valuable youth which have immense powers to do anything. He said that everyone can do everything but what they can do individually, no one can do it in the same way you do.
+
+  
