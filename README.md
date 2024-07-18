@@ -2,7 +2,7 @@
 
 ![](GNDEC1.png)
 
-- __Day 1__
+- __Day 1 (10th July,2024)__ 
 > INDUCTION PROGRAM DAY
 
 My day started with a sleepless night. I woke up at 7:am and started getting dressed up. I went from my home at 8:15am and reached at exactly 8:50am. Then, I waited to meet someone I know earlier. But unfortunately I got no one. So. then, I went to a [hall]() where the kirtan and ardas was going to held. i took off my shoes and washed my hands. Then, I covered my head and moved inside the [hall](). The kiratan and ardas made me feel so good and relaxing.
@@ -21,9 +21,12 @@ Then, the [Day 2 Of INDUCTION PROGRAM](https://fb.watch/tigAJvY2Z7/) got over.
 
 <!--FRom here code is being edited-->
 
+___
+
 ![](gndec2.jpeg)
-- __Day 2__
-> INDUCTION PROGRAM  
+
+- __Day 2 (11th July, 2024)__
+> INDUCTION PROGRAM DAY 
 
 The day began with a sleepful night as I was tired and I went to college. I went to the same [Auditorium](https://gndec.ac.in/cultural/?q=node/9) and took a seat. The program started with [Mr. Arvind Dhingra](https://gndec.ac.in/faculty/?id=68) sir, head of the Technical activities, pass out of [NIT JAIPUR](https://www.google.com/search?sca_esv=1af7de384805fe35&sca_upv=1&rlz=1C1CHBF_enIN1051IN1051&sxsrf=ADLYWIJRj8lU4wRCnhGTHBoZ1MBjn_64qg:1720950747389&q=NIT+JAIPUR&source=lnms&fbs=AEQNm0BKxFXqFZETuC92mLOmXO9xJMdcEc6vsS8xotR_o6JIE2lxJVbfbQf0QBF0bvfl3GFNBPTQACMdFh6XPuV1Z0Eg9hjj1mCoiKv3FGCZSoL8LFWndMdM2XR4aGD0cSNlCtcWfG2Uxx1VHbESZZGtTLqJIpWorIEiBwoLHBotrxsca8c17DXljhODP05SZ-xKH05k1jwUlGV8PNmYih-FkegBBuFe9w&sa=X&ved=2ahUKEwimlOWPoaaHAxV7SGcHHTklAhkQ0pQJegQIFBAB&biw=1536&bih=730&dpr=1.25). He explained about how life is all about changing and growing and how will we all can transform. He said it could be done by ["I"](), which means by changing our mindset and perspective, we all can change and grow. He said that the best song of the world is our own heartbeat and start this college journey with [GNDEC]() with a "YES" instead of a "NO" and have faith on this [institution]().
 He said that everyone is already good in their respective domains but we should try to be a great one and for that we should invest our time in extra curricular along with the regular curricular. He said, invest your time, instead of wasting it. __And, by listening to this from sir, I decided to be a legendry who can be great in anything whether it is academics, sports or any other thing__.
@@ -74,9 +77,11 @@ Then came a turning point for me and some of more students like me. [Dr. Hardeep
 After, ending sessiion, he proposed all of us that they are giving a chance to 10 students to get mentored under him and get complete guidence about coding. Without any doubt, I went forward to sir to get this oppurtunity. But more that 50 students wanted to be a part of it. So, sir decided to make Telegram group and I entered the group. Sir gave us a task which was to make portfolio using markdown, which I partially completed at that time but now I have done it.
 And, by taking this goal, I came home and dedicatedly started doing it. I learned markdown and started making the project but I was unable to make my project live at Github pages. But, I sent a pdf format of my work. Then, my day ended and I was ready for the next day as my first day as classes was going to happen.    
 
+___
+
 ![](alumni_home.jpeg)
 
-- __Day 3__
+- __Day 3 (12th July 2024)__
   
   > Classes Day
 
@@ -93,9 +98,13 @@ Learning from all this is not too much, but it simply says that, all the goals, 
 
 __SELF-DISCIPLINE and SELF-CONFIDENCE__
 
-- __Day 4__
+____
 
-> INDUCTION PROGRAM 
+![](auditorium.webp)
+
+- __Day 4 (15th July, 2024)__
+
+> INDUCTION PROGRAM DAY
  
 The day began with a fear of fever as I was suffering from cough and cold but still made up my mind ready to go to college whatever it takes. So, today was again our "INDUCTION PROGRAM". 
 
