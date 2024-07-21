@@ -2,7 +2,7 @@
 
 ![](GNDEC1.png)
 
-- __Day 1 (10th July,2024)__ 
+### __- Day 1 (10th July,2024)__ 
 
 > INDUCTION PROGRAM DAY
 
@@ -26,7 +26,7 @@ ___
 
 ![](gndec2.jpeg)
 
-- __Day 2 (11th July, 2024)__
+### __- Day 2 (11th July, 2024)__
 
 > INDUCTION PROGRAM DAY 
 
@@ -83,9 +83,9 @@ ___
 
 ![](alumni_home.jpeg)
 
-- __Day 3 (12th July 2024)__
+### __- Day 3 (12th July 2024)__
 
-> Classes Day
+> CLASSES DAY
 
 The day began with the same routine and I went to college. Today, students have to attend their classes for the first time. Everyone checked their schedule which was sent it on Whatsapp group earlier. I reached outside the auditorium and 
 went to the stairs side. I reached at first floor and then started finding my classroom. It was a very long corridor. Then, I found the classroom where my first lecture was going to held. The first lectures was taken by our seniors. In rhe lecture, they enlighten us about Chatgpt and Excel. Majorly, the Lecture was on Excel. They teached us variuos things about it, new functions about which I was also not aware earlier. Then after finishing, it they as our friend said that if we got in any trouble related to college or studies, we can contact them, ask them and get a solution from them.
@@ -94,7 +94,7 @@ I personely really enjoyed it. Then, I went for my second lecture which was of m
 
 Then, I went to a [canteen](https://www.instagram.com/p/CGc3dWkghg9/?utm_source=ig_web_copy_link) for lunch. After lunch, there was a breifing class of [Rai sir](https://gndec.ac.in/faculty/?id=268). There he breifed us about how can we upload our file to Github and make a live link of it. I got a very good chance to correct my mistakes. Also, sir mentioned that however my task was not fully completed but my efforts were good enough. This made me feel so good and I decided that, by hook or crook, I will complete it. Then, finally, I completed it.
 
-# LEARNING 1 :-
+##### LEARNING 1 :-
 
 Learning from all this is not too much, but it simply says that, all the goals, aims, tasks, everything depends only and only on us. It depends how much dedicated we are for it, how much discplined, how much hunger is present and most imporatantly the "WHY". So, from this experience, you all can have learning ofone word which is:
 
@@ -104,7 +104,7 @@ ____
 
 ![](auditorium.webp)
 
-- __Day 4 (15th July, 2024)__
+### __- Day 4 (15th July, 2024)__
 
 > INDUCTION PROGRAM DAY
  
@@ -113,7 +113,7 @@ The day began with a fear of fever as I was suffering from cough and cold but st
 The day started with the lecture of [Dr. Randhir Singh](https://gndec.ac.in/faculty/?id=75) sir, associate professor, breifed us about the major tasks which we all students have to do. He said that all the students must have to give Profficiency Test of English, Profficiency Test of Mathematics, Report making about your experience at GNDEC and INDUCTION PROGRAM and a E-certificate about any skill. These all tasks are useless for some people, but from my perspective, these all things can uplift are potential in a very good way. He also instructed us about the [Github pages](https://github.com/) and how to make repositry on it in detail. he also mentioned about [MARKDOWN](https://www.markdownguide.org/cheat-sheet/).
 
 
-Then, [Dr. Pyare Lal Garg](https://www.bing.com/images/search?view=detailV2&ccid=FvnpjWYN&id=60625B6AF9733B34B243B4FFA7EF1C044508DC71&thid=OIP.FvnpjWYNRYq7VqBoOxI5lAHaEK&mediaurl=https%3a%2f%2fi.pinimg.com%2f736x%2fe9%2f6e%2f3d%2fe96e3d7c84fad50246b9963489ed450a.jpg&exph=414&expw=736&q=Dr.+Pyare+lal+gndec&simid=607996760932097556&FORM=IRPRST&ck=529DE4ABC544CB3097A0601636BB48A1&selectedIndex=0&itb=0&ajaxhist=0&ajaxserp=0), adviser to Punjab Congress president Navjot Singh Sidhu. Garg, 73, who retired as professor of paediatric surgery in 2002 and is known for his outspoken nature, has worked both with the Shiromani Akali Dal-Bharatiya Janata Party (SAD-BJP) as well as Congress governments in Punjab.
+Then, [Dr. Pyare Lal Garg](https://scontent.fixc4-3.fna.fbcdn.net/v/t39.30808-6/451339540_892343842936331_7545701491075788439_n.jpg?_nc_cat=104&ccb=1-7&_nc_sid=833d8c&_nc_ohc=8irMyC9G028Q7kNvgFXxJrs&_nc_ht=scontent.fixc4-3.fna&oh=00_AYB0uMxa-9PYgXIuqZlQtUKXCEATVnM00v-o79LKP5BB4g&oe=66A1C343), adviser to Punjab Congress president Navjot Singh Sidhu. Garg, 73, who retired as professor of paediatric surgery in 2002 and is known for his outspoken nature, has worked both with the Shiromani Akali Dal-Bharatiya Janata Party (SAD-BJP) as well as Congress governments in Punjab.
 
 First, He greeted everyone with good wishes and blessings, also feel grateful to GNDEC and faculty members of the college for giving him the oppurtunity to speak in GNDEC college amongst the students. Seeing the students, he reminded his old days and said about teaching which was full of togetherness in his time. Many new changes have been implemented in the world but human behaviour is still same and ability and power of attaining courage to be great , not just to be good or average. 
 
@@ -153,6 +153,8 @@ Which combines into __"LIFE"__. He also mentioned about __"SEA"__, that is:
 >- __A__ WARENESS
   
   He said that India has the greater and valuable youth which have immense powers to do anything. He said that everyone can do everything but what they can do individually, no one can do it in the same way you do.
+
+![](photo_2024-07-21_15-24-53.jpg)
 
   He suggested to just enjoy and explore but participate in any hobby, do live projects and grow your network. In the race between success and excellence, always excellence wins, That is why, we all should focus on excellence, not only on success. He also mentioned about a life cycle of a student.
 
@@ -220,7 +222,7 @@ _____
 ![](gndec3.jpeg)
 
 
-- __Day 5 (16th July, 2024)__
+### __- Day 5 (16th July, 2024)__
 
 > Quiz Day 
 
@@ -230,9 +232,147 @@ And it was glad to know that it was a quiz competion at class level on aptitude.
 
 After that, there was a quiz based on English knowledge which was beyond my knowledge, which is why I was not able to participate properly but I enjoyed. 
 
+![](gndec-library_1461231873.jpg)
+
 ___
 
-- __Day 6 (17th July, 2024)__
+### __- Day 6 (17th July, 2024)__
+
+> CLASSES DAY 
+
+Today, there was one maths class and one UHV class. So, I woke up early as usual and went to college. The first class, which was of maths, was taken by [Sanchit sir](https://gndec.ac.in/faculty/?id=401), in the [seminar hall](https://gndec.ac.in/gallery/_data/i/upload/2020/10/18/20201018210155-e852507a-la.jpg). The seminar hall was well organised room and had good and comfortable furniture for the students. 
+
+Sir taught us about integration. First, we recalled about basics of it and then practiced some questions on variuos types of integrations. 
+
+![](OIP.jpeg)
+
+Then, our first lecture of UHV (Universal Human Values), taken by [Rishi Kapoor sir](https://gndec.ac.in/faculty/?id=403), assistent professor. 
+
+He introduced this subject first that what is UHV and how it is important. Then, He started the first topic which was "Human values/ Education/ Professional ethics. Then, He briefed us about how to answer a question of 10-15 marks.
+He also taught us "Understanding tha Harmony in family" and also about "Aspiration".
+
+Then, there was a briefing class of [Hardeep sir](https://gndec.ac.in/faculty/?id=268). After attending it, I went home.
+
+___
+
+![](418442675_3308579329431980_2391758843795038867_n.heic)
+
+### __- Day 7(18th July, 2024)__
+  
+> CLASSES AND INDUCTION PROGRAM DAY
+
+Today, There were both classes and induction program was going to held. So, as usual, I woke up and went to college. 
+
+![](photo_2024-07-21_15-24-41.jpg)
+
+First section of day was in classes. The first lecture was of UHV by [Rishi sir](https://www.gndec.ac.in/faculty/?id=403). He taught us about:
+>- Understanding the Human Being
+>- Briefing About "Self Body"
+>- Activities Of Self Body
+>- Response Of Self And Body
+>- Gross Misunderstanding
+>- Understanding Harmony In Self 
+>- State Of Imagination
+
+![](canva-logo-symbol-free-png-images.png)
+
+
+Then, there was our peer interaction of __"CANVA"__.
+Canva is a free graphic design platform that's great for making invitations, business cards, Instagram posts, and more. A drag and drop interface makes customizing thousands of templates simple and easy. Canva's wide array of features allow you to edit photos without extensive photo editing knowledge or experience.
+
+Seniors briefed us about various features of canva. Then, they told us to make a post on our own and upload on to a google form given by them. I made a post using canva about my channel:
+
+![](photo_2024-07-20_20-51-42.jpg)
+
+Then, there was our induction program after break. So, I went to eat lunch and reached auditorium after lunch. 
+
+![](ncclogo.png)
+
+
+First, There was a [NCC Induction program](https://ncc.gndec.ac.in/), in which the head of this NCC department came, [Armed Lieutenant Harwinder Singh](https://scontent.fixc4-3.fna.fbcdn.net/v/t39.30808-6/452051557_894181416085907_3174978890262078001_n.jpg?stp=cp6_dst-jpg&_nc_cat=103&ccb=1-7&_nc_sid=833d8c&_nc_ohc=a3cgQM1zhRYQ7kNvgFNO3h9&_nc_ht=scontent.fixc4-3.fna&oh=00_AYArQFENggzdITgduYQr0DzX_GLKZ3bPeLqDBCWpquwlWQ&oe=66A1BC5E), ANO { Associate NCC Officer}.
+
+Sir started with a saying that "Dreams always come true". He briefed us about 3 activities which all the students must do, that is, __Academics__, which is foremost important and we should never compromise with it. Then, __Co-curricular activities__, which are a part of the regular curricular. Curriculum have different kind of subjects but things which we do not learn from curriculum, can be acquired from co-curricular activities like by joining any club. Then comes the __Extra curricular activites__, which includes sports, NCC and NSS. 
+
+He said that we think that we are having more potential but we waste the most of them in other activities. Using of potential in a right way also falls under extra curriculur. Sir mentioned many times that don't do extra curricular activities in the cost of main curricular, that's why, we all should first focus on academics, and then take part in the extra curricular. 
+
+
+![](carousel-2.jpeg)
+
+
+He said that besides bookish knowledge, these clubs and extra activities help to get practical learnings. Implementation of these practical knowledge will help to deal with the real life problems. These practical learnings helps to grow and improve wisedom and intelligence.
+
+Sir told us that NCC is 60 years old in GNDEC. There are two departments, one is __ARMY__ and other is __AIRWING__. He said that students become cadet just ny waering the uniform of it because it is an immense proud and realisation of responsibilities just after wearing the uniform. And that is why, it is a golden chance for the students to be a part of it and groom thereselves in a different and right way as physical activities get improved. It also teaches us about competiion spirit, instead of the spirit of winning or losing.
+
+Sir, also mentioned about some points which can be attain by taking part in NCC. 
+
+![](42249049_10155399773326650_8333617772772720640_n.png)
+
+
+
+<!-- add image for NSS-->
+
+
+
+
+
+
+
+
+
+
+
+Then, [Pr. Jaswir Singh Grewal](https://www.facebook.com/photo.php?fbid=894755049361877&set=pb.100064821697496.-2207520000&type=3), cordinator of NSS, came to brief us about NSS. NSS {[National Service Scheme](https://www.gndec.ac.in/?q=node/338)} is an Indian govterment sector public service program conducted by the Ministry of Youth Affairs and Sports of the Government of India. Popularly known as NSS, the scheme was launched in 1969. Aimed at developing student's personality through community service, NSS is a voluntary association of young people in Colleges, Universities and at +2 level working for a campus- community (esp. Villages) linkage.
+
+![](SdbFJOxVTyEjcCzBk1qx_MPcL1JiforwlJOUl.webp)
+
+The Objectives of NSS :
+- The Motto of NSS "Not Me But You", reflects the essence of democratic living and upholds the need for self-less service. NSS helps the students development & appreciation to other person's point of view and show consideration towards other living beings
+
+- Eco-Friendly Projects
+
+__History and Growth of NSS:__\
+_In India, the idea of involving students in the task of national service dates back to the times of Mahatma Gandhi, the father of the nation. The central theme which he tried to impress upon his student audience time and again, was that they should always keep before them, their social responsibility. The first duty of the students should be, not to treat their period of study as one of the opportunities for indulgence in intellectual luxury, but for preparing themselves for final dedication in the service of those who provided the sinews of the nation with the national goods & services so essential to society. Advising them to form a living contact with the community in whose midst their institution is located, he suggested that instead of undertaking academic research about economic and social disability, the students should do “something positive so that the life of the villagers might be raised to a higher material and moral level”._
+
+_The post-independence era was marked by an urge for introducing social service for students, both as a measure of educational reform and as a means to improve the quality of educated manpower. The University Grants Commission headed by Dr. Radhakrishnan recommended introduction of national service in the academic institutions on a voluntary basis with a view to developing healthy contacts between the students and teachers on the one hand and establishing a constructive linkage between the campus and the community on the other hand._
+
+_On September 24, 1969, the then Union Education Minister Dr. V.K.R.V. Rao, launched the NSS programme in 37 universities covering all States and simultaneously requested the Chief Ministers of States for their cooperation and help. It was appropriate that the programme was started during the Gandhi Centenary Year as it was Gandhiji who inspired the Indian youth to participate in the movement for Indian independence and the social uplift of the downtrodden masses of our nation. The cardinal principle of the programme is that it is organised by the students themselves and both students and teachers through their combined participation in social service, get a sense of involvement in the tasks of national development._
+
+_Community service rendered by university level students has covered several aspects like adoption of villages for intensive development work, carrying out the medico-social surveys, setting up of medical centres, programmes of mass immunization, sanitation drives, adult education programmes for the weaker sections of the community, blood donation, helping patients in hospitals, helping inmates of orphanages and the physically handicapped etc. NSS volunteers did commendable relief work during natural calamities/emergencies such as cyclones, floods, famine, earthquake, etc. From time to time all over the country. The NSS students have also done useful work in organising campaigns for eradication of social evils, and popularization of the nationally accepted objectives like nationalism, democracy, secularism, social harmony and development of scientific temper._
+
+Sir advised to do social services and charities. He started saying that we should first formulate the problem and then solve it with the help engineering. He also suggested to use reverse engineering. Applications of science came from engineering and optimise the techniques for it. He also mentioned about ergonomics which is an applied science concerned with designing and arranging things people use so that the people and things interact most efficiently and safely. 
+
+He also mentioned that nowadays the TDS of water is also not good due to which cancer causing problems and hepatitis c is happening in our surroundings which is why we they organise camps to check hepatitis C. They organise treatement free of cost. Also, in Ludhiana, the AQI (Air Qualtiy Index) is above 250 which is really a harmful situation for people. Soil is also get cancer affected due to the increased usage of pesticides during agriculture. "SOIL" is really important because everything comes from it. 
+
+He also mentioned that to acquire world peace, we should learn from the history.
+
+___
+
+
+
+### __- Day 8(19th July, 2024)__
+
+> INDUCTION PROGRAM DAY AND DEPARTMENT VISIT DAY
+
+Today, there was induction day as well as the first visit to my department, that is, [CSE department](https://cse.gndec.ac.in/). So, I went to college with a few content of excitement. 
+
+First, there was induction program. The first speaker of the program was [Kanwardeep Kalra](https://www.facebook.com/photo.php?fbid=894747316029317&set=pb.100064821697496.-2207520000&type=3), senior software engineer from March 2011-present  13yrs 5 months in Gurgaon, analyst programmer from Jul 2008 - Feb 2011 in Mumbai area, done bachelor's degree in computer science from G.Z.S.C.E.T. from 2004-2008, done schooling from DAV Public school, Ludhiana from 1990-2004.
+
+![](452006281_894747662695949_1360041128374849068_n.jpg)
+
+They started with a play of interview, 
+
+- __Candidate 1__ : This candidate was over confident, no humbleness, behaviour problem and informal attitude. That is why, from my opinion, this candidate cannot be selected. 
+
+- __Candidate 2__ : This candidate was humble, respectful, with good intro but she was not able to speak properly and lack of confidence in communication. 
+
+- __Candidate 3__ : This candidate was confident, with good formal intro, great communication skill and no behaviour issue. And, from my opinion, this candidate can be selected.
+
+- __Candidate 4__ : This candidate was good in speaking skill, confident, fully technical skillful, clear and firm. This candidate can be selected without any issue. 
+
+
+
+
+
 
 
 
