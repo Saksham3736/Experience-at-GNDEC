@@ -24,7 +24,7 @@ Then, the [Day 2 Of INDUCTION PROGRAM](https://fb.watch/tigAJvY2Z7/) got over.
 
 ___
 
-![](gndec2.jpeg)
+![](1489641932phpdKczBR.png)
 
 ### __- Day 2 (11th July, 2024)__
 
@@ -127,14 +127,17 @@ He said that we should not get afraid of new things, rather get strengthen by do
 
  He said that if a new students came up to him, whether he knows something or not, he will see that what he knows and how he respond to other things. Everyone fears first, maybe less or more, but humans have power to be strong in any conditions.
 
+ ![](content_image_60387f9f-e314-415d-97d7-92d8dabf8b51.jpeg)
+
  __He also mentioned about the "NEET SCAM" problem which is really disheartening problem because the students who tried their best got nothing which makes their kills their confidence and faith. He said the servicesgiven by the NTA is wrong and we all have to improve them. He mentioned their are many oppurtunities, so we have to be ready in advance in order to grab them. Eveyone fails, got stressed, experience anxiety and depression but still they manage, do efforts and achieve what they want to.__
 
 _Many people come in our life, some of which came to demotivate us, make us feel low and some came to help us, guide us, become our well-wishers, support us. That's why, we should never look whose gone but to look on whose still up there for you_
 
 Many stories, teachings and many more things sir gave us by this speech which means a lot to me.
 
+![](sonygoyal.jpg)
 
-Our next speaker of the day was, [Mr. Sony Goyal](https://www.missioncat.in/assets/img/others/sonygoyal.jpg), have done engineering 1997-2004, which was 7 years of experience, renowned as the favourite [CAT](https://www.google.com/search?q=cat+full+form&sca_esv=e59d9031b627fbb2&sca_upv=1&rlz=1C1CHBF_enIN1051IN1051&sxsrf=ADLYWIKhpk0dmi4Vf6Dz4fe-dxt9REvwvg%3A1721144232690&ei=qJOWZuDzKZ-8seMPzNe28AY&oq=CAT&gs_lp=Egxnd3Mtd2l6LXNlcnAiA0NBVCoCCAAyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyDRAAGIAEGLADGEMYigUyDRAAGIAEGLADGEMYigUyDRAAGIAEGLADGEMYigUyDRAAGIAEGLADGEMYigUyDhAAGLADGOQCGNYE2AEBMg4QABiwAxjkAhjWBNgBATIOEAAYsAMY5AIY1gTYAQEyExAuGIAEGLADGEMYyAMYigXYAQIyExAuGIAEGLADGEMYyAMYigXYAQIyExAuGIAEGLADGEMYyAMYigXYAQIyExAuGIAEGLADGEMYyAMYigXYAQJIpQtQAFgAcAF4AZABAJgBAKABAKoBALgBAcgBAJgCAaACCpgDAIgGAZAGE7oGBggBEAEYCboGBggCEAEYCJIHATGgBwA&sclient=gws-wiz-serp) educator on youtube. He brings over 15 years of experience to help you to crack [CAT](https://www.google.com/search?q=cat+full+form&sca_esv=e59d9031b627fbb2&sca_upv=1&rlz=1C1CHBF_enIN1051IN1051&sxsrf=ADLYWIKhpk0dmi4Vf6Dz4fe-dxt9REvwvg%3A1721144232690&ei=qJOWZuDzKZ-8seMPzNe28AY&oq=CAT&gs_lp=Egxnd3Mtd2l6LXNlcnAiA0NBVCoCCAAyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyDRAAGIAEGLADGEMYigUyDRAAGIAEGLADGEMYigUyDRAAGIAEGLADGEMYigUyDRAAGIAEGLADGEMYigUyDhAAGLADGOQCGNYE2AEBMg4QABiwAxjkAhjWBNgBATIOEAAYsAMY5AIY1gTYAQEyExAuGIAEGLADGEMYyAMYigXYAQIyExAuGIAEGLADGEMYyAMYigXYAQIyExAuGIAEGLADGEMYyAMYigXYAQIyExAuGIAEGLADGEMYyAMYigXYAQJIpQtQAFgAcAF4AZABAJgBAKABAKoBALgBAcgBAJgCAaACCpgDAIgGAZAGE7oGBggBEAEYCboGBggCEAEYCJIHATGgBwA&sclient=gws-wiz-serp) secure spot in the top [IIMs](https://www.google.com/search?q=IIM&sca_esv=e59d9031b627fbb2&sca_upv=1&rlz=1C1CHBF_enIN1051IN1051&sxsrf=ADLYWIKdUjKJL6yFQBghrRZ_0isqZXYCLQ%3A1721144236926&ei=rJOWZvajOLinseMPs8CN0AE&ved=0ahUKEwj2qeX28auHAxW4U2wGHTNgAxoQ4dUDCA8&uact=5&oq=IIM&gs_lp=Egxnd3Mtd2l6LXNlcnAiA0lJTTISEAAYgAQYsQMYQxiKBRhGGPsBMgoQABiABBhDGIoFMgoQABiABBhDGIoFMggQLhiABBixAzINEAAYgAQYsQMYQxiKBTINEAAYgAQYsQMYQxiKBTIKEAAYgAQYQxiKBTIKEAAYgAQYQxiKBTIKEAAYgAQYQxiKBTINEAAYgAQYsQMYQxiKBTIeEAAYgAQYsQMYQxiKBRhGGPsBGJcFGIwFGN0E2AECSI0qUOMGWLgncAJ4AZABA5gB3AGgAYULqgEFMC43LjK4AQPIAQD4AQGYAgagAuoFqAIUwgIKEAAYsAMY1gQYR8ICDRAAGIAEGLADGEMYigXCAgUQABiABMICChAAGIAEGAIYywHCAgcQIxgnGOoCwgITEAAYgAQYQxi0AhiKBRjqAtgBAcICChAjGIAEGCcYigXCAg8QABiABBhDGIoFGEYY-wHCAhAQABiABBixAxhDGIMBGIoFwgIbEAAYgAQYQxiKBRhGGPsBGJcFGIwFGN0E2AECmAMJiAYBkAYKugYGCAEQARgBugYGCAIQARgTkgcFMi4yLjKgB55Y&sclient=gws-wiz-serp). He mentioned a word __"JOSH"__ which means according to him was __"Journey To Success Highway"__.
+Our next speaker of the day was, [Mr. Sony Goyal](https://www.linkedin.com/in/sony-goyal-94662512/?originalSubdomain=in), have done engineering 1997-2004, which was 7 years of experience, renowned as the favourite [CAT](https://www.google.com/search?q=cat+full+form&sca_esv=e59d9031b627fbb2&sca_upv=1&rlz=1C1CHBF_enIN1051IN1051&sxsrf=ADLYWIKhpk0dmi4Vf6Dz4fe-dxt9REvwvg%3A1721144232690&ei=qJOWZuDzKZ-8seMPzNe28AY&oq=CAT&gs_lp=Egxnd3Mtd2l6LXNlcnAiA0NBVCoCCAAyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyDRAAGIAEGLADGEMYigUyDRAAGIAEGLADGEMYigUyDRAAGIAEGLADGEMYigUyDRAAGIAEGLADGEMYigUyDhAAGLADGOQCGNYE2AEBMg4QABiwAxjkAhjWBNgBATIOEAAYsAMY5AIY1gTYAQEyExAuGIAEGLADGEMYyAMYigXYAQIyExAuGIAEGLADGEMYyAMYigXYAQIyExAuGIAEGLADGEMYyAMYigXYAQIyExAuGIAEGLADGEMYyAMYigXYAQJIpQtQAFgAcAF4AZABAJgBAKABAKoBALgBAcgBAJgCAaACCpgDAIgGAZAGE7oGBggBEAEYCboGBggCEAEYCJIHATGgBwA&sclient=gws-wiz-serp) educator on youtube. He brings over 15 years of experience to help you to crack [CAT](https://www.google.com/search?q=cat+full+form&sca_esv=e59d9031b627fbb2&sca_upv=1&rlz=1C1CHBF_enIN1051IN1051&sxsrf=ADLYWIKhpk0dmi4Vf6Dz4fe-dxt9REvwvg%3A1721144232690&ei=qJOWZuDzKZ-8seMPzNe28AY&oq=CAT&gs_lp=Egxnd3Mtd2l6LXNlcnAiA0NBVCoCCAAyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyChAAGLADGNYEGEcyDRAAGIAEGLADGEMYigUyDRAAGIAEGLADGEMYigUyDRAAGIAEGLADGEMYigUyDRAAGIAEGLADGEMYigUyDhAAGLADGOQCGNYE2AEBMg4QABiwAxjkAhjWBNgBATIOEAAYsAMY5AIY1gTYAQEyExAuGIAEGLADGEMYyAMYigXYAQIyExAuGIAEGLADGEMYyAMYigXYAQIyExAuGIAEGLADGEMYyAMYigXYAQIyExAuGIAEGLADGEMYyAMYigXYAQJIpQtQAFgAcAF4AZABAJgBAKABAKoBALgBAcgBAJgCAaACCpgDAIgGAZAGE7oGBggBEAEYCboGBggCEAEYCJIHATGgBwA&sclient=gws-wiz-serp) secure spot in the top [IIMs](https://www.google.com/search?q=IIM&sca_esv=e59d9031b627fbb2&sca_upv=1&rlz=1C1CHBF_enIN1051IN1051&sxsrf=ADLYWIKdUjKJL6yFQBghrRZ_0isqZXYCLQ%3A1721144236926&ei=rJOWZvajOLinseMPs8CN0AE&ved=0ahUKEwj2qeX28auHAxW4U2wGHTNgAxoQ4dUDCA8&uact=5&oq=IIM&gs_lp=Egxnd3Mtd2l6LXNlcnAiA0lJTTISEAAYgAQYsQMYQxiKBRhGGPsBMgoQABiABBhDGIoFMgoQABiABBhDGIoFMggQLhiABBixAzINEAAYgAQYsQMYQxiKBTINEAAYgAQYsQMYQxiKBTIKEAAYgAQYQxiKBTIKEAAYgAQYQxiKBTIKEAAYgAQYQxiKBTINEAAYgAQYsQMYQxiKBTIeEAAYgAQYsQMYQxiKBRhGGPsBGJcFGIwFGN0E2AECSI0qUOMGWLgncAJ4AZABA5gB3AGgAYULqgEFMC43LjK4AQPIAQD4AQGYAgagAuoFqAIUwgIKEAAYsAMY1gQYR8ICDRAAGIAEGLADGEMYigXCAgUQABiABMICChAAGIAEGAIYywHCAgcQIxgnGOoCwgITEAAYgAQYQxi0AhiKBRjqAtgBAcICChAjGIAEGCcYigXCAg8QABiABBhDGIoFGEYY-wHCAhAQABiABBixAxhDGIMBGIoFwgIbEAAYgAQYQxiKBRhGGPsBGJcFGIwFGN0E2AECmAMJiAYBkAYKugYGCAEQARgBugYGCAIQARgTkgcFMi4yLjKgB55Y&sclient=gws-wiz-serp). He mentioned a word __"JOSH"__ which means according to him was __"Journey To Success Highway"__.
 He came up with a mantra for us which was " 1 2 Ka 4", which seemed really interesting. He started by saying that your success decides on your inner stregth. Give your 100% to everything. He also said that while giving your introduction about high school, instead of saying Non-medical, say Science stream. 
 
 He said that students must study with full focus, interest adn dedication. The 2nd _mantra_ he mentioned was " Love what you do, Do what you love", he meant by this that everything we do, we should do not only with logic but also with seriousness. He said that mind workes at it's highest peak is when it is relaxed not when it is stressed out from the problems. He also suggested that students must play everyday for about 30-45 min, outside games, in order to keep ourselves physically upto-date and get our mind in relax mode. 
@@ -467,17 +470,72 @@ She said that always aim to be a complete package. Before going to any interview
 
     - Smile.
 
+These were the toics which was briefed by the mam. People join the industries to groom it well. She said that make yourself "Culturally Fit" because we should take care of "Cultural relibility", not only on technical requirements. 
 
+__In the end, she said that change is good but never easy to do it. But it is worth it.__
 
+![](452019474_894747426029306_5067124233193341009_n.jpg)
 
+Then, our next speaker was [Pr. Jaswinder singh](https://www.instagram.com/reel/C9nBNKBSUgg/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==), incharge of IAPT. Sir, greeted all of us with _Sat Sri Akal_ and taught us the meaning of it. There was a World Record entered by Asia Book of Records, 2nd time in 2023, conducted under Jaswinder sir.\
+ He said that people are depended due to not using brain properly. In reality, brain technically develops us. He mentioned that everything is in this world is based on Mathematics, which i personelly also feels the same way. As, it teaches us discipline and punctuality. Sir said that we all are lacked in somethings due to having the attitude of knowing everything, which is not good. And, to grow learning attitude in ourseles, we should empower our inner strength which is needed everywhere. \
+He suggested to learn to get control on ourselves and never be a slave of anything, anymore. We should think about ourselves first then think about others. \
+He also teached us how can we count our all bones in our body. He showed us new techniques about tables to learn them in a unique way. \
+He conclude by saying that we need to have balance in life which can learn from mathematics. 
 
+<!-- add image about cse department-->
 
+![](gndec2.jpeg)
 
+Then, there was our department visit after the lunch break.\
+So, me and rest of the students went to the CSE department. Teachers sent to us to different classes section wise. Then, there was a sir who briefed us about various things of the department and history. 
 
+Then, many teachers came to meet us and then, HOD mam came in our class, [Dr. Kiran Jyoti](https://gndec.ac.in/faculty/?id=364), Associate Professor and Head of Department of Computer Science and Engineering.
 
+- __About the department :__
+  - Department of Computer Science and Engineering was established in year 1997.
+  -  Department is offering B.Tech. and M.Tech. programs in Computer Science and Engineering. 
+  -  Laboratories of the department are equipped with state of the art infrastructure to cater course work and research activities. 
+  -  A Good number of books is available in departmental library for prompt access to students and faculty members. 
+  -  Under academic autonomy, study schemes of the offered programs are updated regularly focusing outcome based education, to make students employable as per national and international requirements. 
+  - Graduates of the department are serving around the globe in eminent companies, academic, as well as in public sector.
+  - They are bringing laurel to the department by excelling in fields of their work.
+  - Every year a good number of students are clearing different competitive exams. 
 
+    | YEAR | Sanctioned Intakes |
+    |:----:|:------------------:| 
+    | 1997 | 30 |
+    | 1998 | 40 |
+    | 2004 | 60 |
+    | 2011 | 150 |
+    | 2022 | 180 |
+    | 2023 | 240 |
+    | 2024 | 300 |
 
+>- __VISION AND MISSION :__
 
+  - __Institute Vision -__
+      - Realization of Glimpses of a Golden India in the real (rural) India which lives and abounds in its villages. GNDEC will excel nationally and distinguish itself as a recognized pre-eminent leader to serve this 70% brotherhood through its socio-economic upliftment by exposure of the have-nots to Engineering & Technology thereby grooming them as technically competent and intellectually-vital Graduates through practically focused quality learning experiences, and thus assuring productive careers for them.
+
+  - __Institute Mission -__
+      - Upliftment of Rural Students through technical education.
+      - Respond to local societal needs by developing selected targeted research projects.
+      - Quality training programs in need based on modern technology.
+      - To maintain state-of-the-art infrastructure in laboratories.
+      - To promote the culture of self-employment.
+      - To impart non-formal education to unemployed youth.
+      - To inculcate moral, ethical, and spiritual values in education at all levels.
+
+  - __Department of Computer Science and Engineering
+Department Vision -__
+      - To generate competent professionals to become part of the industry and research organizations at the national and international levels.
+
+  - __Department Mission -__
+      - Providing a strong theoretical and practical background across the computer science discipline with an emphasis on software development.
+      - Imparting the skills necessary to continue education to grow professional.
+      - Empowering the youth in rural communities with computer education.
+      - Inculcating professional behavior, strong ethical values, innovative research capabilities and leadership abilities.
+
+It was really great feeling for me to see the department. So the day ended with this and I came back home. 
 
 
 
