@@ -228,7 +228,7 @@ _____
 
 Our daily schedule was sent by the teachers which was about a hall event, but it was in the afternoon. So, I slept well and prepared for the college. But, before it, there was a discussion class of mine with H S Rai sir. After it ends, I went towards the hall but I checked my phone and our schedule got changed. So, I went to classes according to the new schedule. 
 
-And it was glad to know that it was a quiz competion at class level on aptitude. The quiz was really great and fun. I was consists of many sports related, author names related and a lot more. 
+And it was glad to know that it was a quiz competition at class level on aptitude. The quiz was really great and fun. I was consists of many sports related, author names related and a lot more. 
 
 After that, there was a quiz based on English knowledge which was beyond my knowledge, which is why I was not able to participate properly but I enjoyed. 
 
@@ -312,20 +312,12 @@ Sir, also mentioned about some points which can be attain by taking part in NCC.
 <!-- add image for NSS-->
 
 
-
-
-
-
-
-
-
-
-
 Then, [Pr. Jaswir Singh Grewal](https://www.facebook.com/photo.php?fbid=894755049361877&set=pb.100064821697496.-2207520000&type=3), cordinator of NSS, came to brief us about NSS. NSS {[National Service Scheme](https://www.gndec.ac.in/?q=node/338)} is an Indian govterment sector public service program conducted by the Ministry of Youth Affairs and Sports of the Government of India. Popularly known as NSS, the scheme was launched in 1969. Aimed at developing student's personality through community service, NSS is a voluntary association of young people in Colleges, Universities and at +2 level working for a campus- community (esp. Villages) linkage.
 
 ![](SdbFJOxVTyEjcCzBk1qx_MPcL1JiforwlJOUl.webp)
 
 The Objectives of NSS :
+
 - The Motto of NSS "Not Me But You", reflects the essence of democratic living and upholds the need for self-less service. NSS helps the students development & appreciation to other person's point of view and show consideration towards other living beings
 
 - Eco-Friendly Projects
@@ -368,6 +360,121 @@ They started with a play of interview,
 - __Candidate 3__ : This candidate was confident, with good formal intro, great communication skill and no behaviour issue. And, from my opinion, this candidate can be selected.
 
 - __Candidate 4__ : This candidate was good in speaking skill, confident, fully technical skillful, clear and firm. This candidate can be selected without any issue. 
+
+![](campustocorporate-131022020237-phpapp01-thumbnail-4.webp)
+
+She started with a topic __"Campus to Corporate"__ in which she mentioned that building a future beyond classroom is a tough task to do becaise our academics is good but there are a lot things to learn other than it like _jargon_ (technical language/ words). The transition from campus to workforce is really different, which occurs when we step out from campus, that will be a huge difference for us to feel at that moment. \
+The skills and working ability does not only depend on how good you are in academics, it will depend on various factors. In selecting you by the corporate, what makes important is how much productive you are. 
+
+![](college-and-career.jpg)
+
+She said "It's all about __C__" like :
+
+>- Childhood
+>- Campus
+>- College
+>- Corporate
+>- Compensation
+
+There are other C's also like:
+
+>- Competitions
+>- Comparisons
+>- Confusions
+>- Career Obstacles
+>- Communication Gap
+>- Commitments
+
+>- __Facts & Figures :__
+
+  - Deloitte's research indicates that jobs requiring intensive soft skills are expected to grow 2.5 times faster than other job types.
+
+  - By 2030, it is predicted that 63% of all jobs will be comprised of soft skills roles, showcasing the growing demand for these competencies in the labor market.
+
+  - According to research conducted by Harvard University, 85% of job success comes from having well-developed soft and people skills, with only 15% attributed to technical skills.
+
+>- __Eye Opening Statistics :__
+
+  - In 2020 SHRM Talent Conference, Susan Collins, shared some eye-opening statistics.
+
+  - 97% of employers surveyed said that soft skills were either as important or more important than hard skills.
+
+  - However, 46% of new employees fail within 18 months and of these. 89 percent fail because of a lack of soft skills, such as professionalism or the ability to get along with others
+
+>- __Bridge The Gap (Overcoming C's) :__
+
+  - Globsyn Business School organized Human Capital Conclave in collaboration with National HRD Network (Kolkata Chapter), with the theme, 'Bridging the Gap between Campus and Corporate'.
+
+  - According to Sushmita Chowdhury, HR Specialist, Richard Design Services India Pvt. Ltd.,
+
+  - "Students should focus on their personal traits and make themselves 'culturally fit' because, in this fast-moving economy, not only should we take care of technical requirements, but taking care of 'cultural reliability' is also necessary, and this requires some attributes like Self-Management, Communication and Collaboration."
+
+She said that always aim to be a complete package. Before going to any interview, we must ask ourselves "__Why are you different from others ?__", which means that we should create a differentiator in ourselves. This differentiator can be gained from soft skills.
+
+![](soft-skills.jpg.optimal.jpg)
+
+- __What are Soft Skills?__
+
+  - Also known as "people skills" or "interpersonal skills"
+
+  - are a set of personal attributes and abilities that allow individuals to effectively interact with others in a professional setting.
+
+![](soft-skills-for-essential-skills-blog-image-sm.png)
+
+>- __Essential Soft Skills For Students :__
+
+  - Appearance, Behaviour & Communication Skills (ABC of First Impression) 
+  - Goal Setting
+
+  - Time Management
+
+  - Interview & Resume Writing
+
+  - Email Writing
+
+  - Body Language
+
+  - Presentation Skills
+
+  - Leadership Skills
+
+  - Public Speaking
+
+  - Teamwork
+
+  - Confidence Building
+
+  - Emotional Intelligence
+
+  - Problem Solving
+
+  - Interpersonal skills
+
+>- __ABC of First Impression - Appearance, Behaviour & Communication :__
+
+  - It Takes 7 seconds to form 1 Impression.
+
+  - __"A"__- Appearance
+  - __"B"__- Behaviour
+  - __"C"__- Communication
+  
+
+    - _Clothing_: Pick outfits that fit nicely and are appropriate for the occasion. Avoid dressing in clothing that is overly tight or loose.
+
+    - _Accessories_: Choose simple accessories that complement your outfit. Avoid wearing too many accessories or ones that are too flashy.
+
+    - _Hairstyle_: Choose a hairstyle that is neat and tidy. Avoid styles that are too messy, or that cover your face. 
+
+    - Smile.
+
+
+
+
+
+
+
+
+
 
 
 
