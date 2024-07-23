@@ -10,7 +10,7 @@ My day started with a sleepless night. I woke up at 7:am and started getting dre
 
 It made me feel that I didn't choose this but Waheguru Ji had chosen it for me. So, with a brave heart and strong mind I attended it and came outside the hall after it ended. Then I took the refreshments offered by the college which were really good. Then, I met my one friend who was in my class during 11th-12th in my [school](https://www.google.com/search?q=bvm+kithclu+nagar&rlz=1C1CHBF_enIN1051IN1051&oq=bvm+kithclu+nagar&gs_lcrp=EgZjaHJvbWUyBggAEEUYOTISCAEQLhgNGK8BGMcBGIAEGI4FMgkIAhAAGA0YgAQyCQgDEAAYDRiABDIICAQQABgWGB4yDQgFEAAYhgMYgAQYigUyDQgGEAAYhgMYgAQYigUyDQgHEAAYhgMYgAQYigUyCggIEAAYgAQYogTSAQg3NjMwajBqNKgCALACAA&sourceid=chrome&ie=UTF-8). After meeting him, I went to the [Auditorium](https://gndec.ac.in/cultural/?q=node/9). Before entering the auditorium, I got a file bag, which was for all students. In the bag, There was brochure about the college, an invitation letter for me, a pen and a notepad. I took it and went inside the auditorium.
 
-The auditorium was very calm, pleasent and was creatively structured. Then, all teachers and seniors came up there. After it, Our respected Principle sir, [Dr. Sehijpal Singh Guru](https://fb.watch/tigo5j7WBQ/), Our Director sir, [NSET S.Inderpal Singh](https://fb.watch/tigpSmuCit/) along with our alumna [Er.Jiwandeep Singh](https://fb.watch/tigjZwZe3z/), PCS officer, came there to greet and interact with all of us. First, Our principal sir came and motivated us to make the best use of this platform. Then, Our director sir introduced us to the legendry and illustrious history of this [instituion](https://www.gndec.ac.in/), emphasizing its 100 years of shaping brilliant minds. He highlighted the first 36 years, which were dedicated in the establishment of this [instituion](https://www.gndec.ac.in/).
+The auditorium was very calm, pleasent and was creatively structured. Then, all teachers and seniors came up there. After it, Our respected Principle sir, [Dr. Sehijpal Singh Guru](https://fb.watch/tigo5j7WBQ/), Our Director sir, [NSET S.Inderpal Singh](https://fb.watch/tigpSmuCit/) along with our alumna [Er. Jiwandeep Singh](https://fb.watch/tigjZwZe3z/), PCS officer, came there to greet and interact with all of us. First, Our principal sir came and motivated us to make the best use of this platform. Then, Our director sir introduced us to the legendry and illustrious history of this [instituion](https://www.gndec.ac.in/), emphasizing its 100 years of shaping brilliant minds. He highlighted the first 36 years, which were dedicated in the establishment of this [instituion](https://www.gndec.ac.in/).
 
 Then, our one of the alumni, now as a PCS officer, who was the "Guest Of Honor" of that day, illustrated us the imporatnce of "what", "how" and most imporant "My why". One of the great question which we all should ask from ourselves at the beginning of anything so that we can properly, carefully, whole heartedly and with a great self-confidence do the task we want to do. he explained us the real meaning of an __"ENGINEER"__ that is _creators_. As a creator, an engineer creates various things to solve a problem in very quick and creative way.\
 He also made us feel about how significant is an _oppurtunity_.
@@ -235,9 +235,9 @@ And it was glad to know that it was a quiz competition at class level on aptitud
 
 After that, there was a quiz based on English knowledge which was beyond my knowledge, which is why I was not able to participate properly but I enjoyed. 
 
-![](gndec-library_1461231873.jpg)
-
 ___
+
+![](gndec-library_1461231873.jpg)
 
 ### __- Day 6 (17th July, 2024)__
 
@@ -537,7 +537,69 @@ Department Vision -__
 
 It was really great feeling for me to see the department. So the day ended with this and I came back home. 
 
+___
 
+![](Guru_Nanak_Dev_Engineering_College,_Ludhiana,_Punjab,_India_9.jpg)
 
+### __- Day 9(22nd July, 2024)__
 
+> INDUCTION PROGRAM 
+
+Today, there was only induction programs in the whole schedule. So, I woke up on time and dressed up for the college and went to college on time. 
+
+The first speaker of the day was [Dr. S.B. Singh](https://www.facebook.com/photo.php?fbid=894478012722914&set=pb.100064821697496.-2207520000&type=3). Sir, started with a very unique way. He told all the students that we have to prick a pin page and took out a pen along with the pinpage. He ordered us to write name, branch, phone number, parent's name along with their phone numbers. 
+
+__Then came the main moment of the day. He asked all the students to think about our future for few minutes. Then, we have to write about it. Then, He asked to write about our strengths, weaknesses, things we should do in future in order to make our dream come true and some more things.__ 
+
+![](450972671_890408659796516_7424438178550404756_n.jpg)
+
+This drill done by sir made me feel really deep dpwn to my heart and mind. This made me emotional and motivated at the same time. 
+
+He asked students to remove two words from our mind which is __package__ and __placement__. He sad that world is waiting for developed competance. That is why, we have to make yourself competant. 
+
+![](450877531_890408786463170_6408475539331027433_n.jpg)
+
+Then came the next speaker of the day, [Dr. Pushpinder Singh](https://www.facebook.com/photo.php?fbid=890407633129952&set=pb.100064821697496.-2207520000&type=3), governmevt medical college, Patiala. 
+
+He started with a saying that, these 4 years is the golden chance for us which will never return again in our life. He said that first we should know the style of learning which we are adopting from last few years in our schools. There are 3 types of learning styles:
+
+>- Auditory
+>- Visual
+>- Kinesthetic
+
+Then, He discussed about a major problem residing in professional colleges which is mental issues. He said that high school was majorly based on theoritical and strategical knowledge, but college will be majorly based on practical knowledge. He discussed about this by saying that there 3 types of learners:
+
+- __Surface Learners :__ 
+  - In this approach, learners focus upon details and parts of the information deemed important. There is an emphasis upon memorising individual details or pieces of information in a way to signify enough comprehension to complete the assignment.
+- __Strategic Learners :__ 
+  - Learners who adopt a strategic approach to learning are usually primarily interested in the grade or marks that they hope to achieve, and this determines what they focus on and how they study
+- __Deep Learners :__ 
+  - When student engage in Deeper Learning, they develop Mastery, Identity, and Creativity. Mastery is evident when students develop the knowledge or skills outlined in the grade-level standards and practices, with the ability to critically apply that knowledge across situations, including real-world contexts.
+
+And, He said that in colleges, deep learners are required. He suggested that the subjects we will learn in 1st year, take them seriously as they will be useful at any point of time. There is study from [HORWRD](https://www.harvard.edu/) that, it is 15% academics and 85% human engineering which includes interpersonel relationship skills, attitude, behaviour and a lot more skills.
+
+Then, He discussed that in today's time, sucide rate and depression rate is increasingly rapidly which is a serious matter of concern. On an average, ! sucide, per year, per college or university is happening all over the world. He said that stress can be controlled from time management very effectively. Which is why, He suggested that use your time wisely
+
+He said that we should use the thing ,that is, "__Goal Setting__", which should be the smart ones. From sir's perspective _SMART_ means:
+
+![](1_-jqZScv-mhte-NS8EVcXTA.jpg)
+   
+He also suggested that "__Learn to say NO__". Learn to reject anything without any hesitation. If youb think something is wrong and some others insist you for it then say "NO" but with a proper and meaningful way not in aggeressive way. There three types of ways to say :
+
+>- Aggressive
+>- Passive
+>- Assertive
+  
+Say the truth strongly, if it is bitter than sugercoat some part of it, in order to not harm or hurt the feelings of other person. He suggested two books to read: 
+
+- [WINGS ON FIRE](https://en.wikipedia.org/wiki/Wings_of_Fire_(autobiography))  
+- [IGNITED MINDS](https://en.wikipedia.org/wiki/Ignited_Minds)
+
+He also mentioned about [SQRRR](https://en.wikipedia.org/wiki/SQ3R): 
+
+![](download.png)
+
+In the end, He said that learn from nature, study it closely, bring flexibility in your behaviour, bent yourself in bad times and the ultimate law for the success is _faith_.
+
+___
 
