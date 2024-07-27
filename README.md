@@ -260,7 +260,7 @@ ___
 
 ![](418442675_3308579329431980_2391758843795038867_n.heic)
 
-### __- Day 7(18th July, 2024)__
+### __- Day 7 (18th July, 2024)__
   
 > CLASSES AND INDUCTION PROGRAM DAY
 
@@ -292,7 +292,7 @@ Then, there was our induction program after break. So, I went to eat lunch and r
 ![](ncclogo.png)
 
 
-First, There was a [NCC Induction program](https://ncc.gndec.ac.in/), in which the head of this NCC department came, [Armed Lieutenant Harwinder Singh](https://scontent.fixc4-3.fna.fbcdn.net/v/t39.30808-6/452051557_894181416085907_3174978890262078001_n.jpg?stp=cp6_dst-jpg&_nc_cat=103&ccb=1-7&_nc_sid=833d8c&_nc_ohc=a3cgQM1zhRYQ7kNvgFNO3h9&_nc_ht=scontent.fixc4-3.fna&oh=00_AYArQFENggzdITgduYQr0DzX_GLKZ3bPeLqDBCWpquwlWQ&oe=66A1BC5E), ANO { Associate NCC Officer}.
+First, There was a [NCC Induction program](https://ncc.gndec.ac.in/), in which the head of this NCC department came, [Armed Lieutenant Harwinder Singh](https://www.facebook.com/photo.php?fbid=894180259419356&set=pb.100064821697496.-2207520000&type=3), ANO { Associate NCC Officer}.
 
 Sir started with a saying that "Dreams always come true". He briefed us about 3 activities which all the students must do, that is, __Academics__, which is foremost important and we should never compromise with it. Then, __Co-curricular activities__, which are a part of the regular curricular. Curriculum have different kind of subjects but things which we do not learn from curriculum, can be acquired from co-curricular activities like by joining any club. Then comes the __Extra curricular activites__, which includes sports, NCC and NSS. 
 
@@ -344,7 +344,7 @@ ___
 
 
 
-### __- Day 8(19th July, 2024)__
+### __- Day 8 (19th July, 2024)__
 
 > INDUCTION PROGRAM DAY AND DEPARTMENT VISIT DAY
 
@@ -541,7 +541,7 @@ ___
 
 ![](Guru_Nanak_Dev_Engineering_College,_Ludhiana,_Punjab,_India_9.jpg)
 
-### __- Day 9(22nd July, 2024)__
+### __- Day 9 (22nd July, 2024)__
 
 > INDUCTION PROGRAM 
 
@@ -603,4 +603,59 @@ In the end, He said that learn from nature, study it closely, bring flexibility 
 
 ___
 
-day
+### __- Day 10 (23rd July, 2024)__
+
+> CLASSES DAY
+
+Today, there was an appointment of mine in the RTO office regarding my license as I already have the learning license that is why I wanted the main one. So, I decided that I went to office and finish the formalities as early as possible but I was not able to finish them on time, due to which I didn't appeared for the college. 
+
+![](Best-Online-Calculus-Courses.webp)
+
+But, I got to know what happened in the college through my friends. They told me that first there was maths lecture by [Dr. Sandeep Kaur Gill](https://gndec.ac.in/faculty/?id=327). In this lecture she taught "Differential Equations", a very interesting and calculative topic of calculus in mathematics
+
+![](5.webp)
+
+Then, there was a lecture of basics of chemistry taken by [Karan Bhalla sir](https://gndec.ac.in/faculty/?id=273). It was all about basics of physical, inorganic and organic. 
+
+___
+
+### __- Day 11 (24th July, 2024)__
+
+> INDUCTION PROGRAM
+
+Today, there was only induction program. So, as usual, I woke up at time and dressed up for the college and went on time. 
+
+![](452667732_897854235718625_8615399385541003112_n.jpg)
+
+The first speaker of the day was [Gauravdeep Singh](https://www.facebook.com/photo.php?fbid=897853662385349&set=pb.100064821697496.-2207520000&type=3), Founder Chairman of [Initiators of Change](https://www.instagram.com/initiatorsofchange_/?hl=en). He is a social entreprenuer, humanitarian worker, motivational speaker, human rights activist and a poet. \
+He started by saying that he came here not teach anything as we already have gone through a lot of sessions. He said that there is nothing more he can teach than the previous speakers. \
+He said that there is a really signifcant role of smile because happier we are, more attracive we are.\
+He mentioned three points based on his experiences:
+- __Temporary happiness is not permanent happiness__ 
+  - From this, he meant that quick pleasure of anything is dangerous for us as it is temporary. On the other hand, things we do with efforts, right mentality, good intention and to fulfill wishes of our parents leads to permanent happiness. 
+- __Quality check of ourselves__
+  - From this, he meant that we should self-introspect about our strengths and qualities in order to utilise them in the right direction which will lead us to success because in a human being, the inner self of it has the abundent powers gathered from the universe. 
+- __God always do great__
+  - From this, he meant that everything happens in our life for a reason whether it is good or bad because everything happens is connected the next thing. Every failure happens in order to guide us the right direction which leads to success.
+
+Then in the end, he said that we should love ourselves and we sholud follow these points mentioned above which can bring
+a major change in our journey of life. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
