@@ -1,5 +1,21 @@
 # MY EXPERIENCE AT GNDEC 
 
+
+| __CONTENTS__ |
+|--------------|
+| [DAY 1 { 10 July, 2024 }](#--day-1-10th-july2024) |
+| [DAY 2 { 11 July, 2024 }](#--day-2-11th-july-2024) |
+| [DAY 3 { 12 July, 2024 }](#--day-3-12th-july-2024) |
+| [DAY 4 { 15 July, 2024 }](#--day-4-15th-july-2024) |
+| [DAY 5 { 16 July, 2024 }](#--day-5-16th-july-2024) |
+| [DAY 6 { 17 July, 2024 }](#--day-6-17th-july-2024) |
+| [DAY 7 { 18 July, 2024 }](#--day-7-18th-july-2024) |
+| [DAY 8 { 19 July, 2024 }](#--day-8-19th-july-2024) |
+| [DAY 9 { 22 July, 2024 }](#--day-9-22nd-july-2024) |
+| [DAY 10 { 23 July, 2024 }](#--day-10-23rd-july-2024) |
+| [DAY 11 { 24 July, 2024 }](#--day-11-24th-july-2024) |
+
+
 ![](GNDEC1.png)
 
 ### __- Day 1 (10th July,2024)__ 
@@ -8,9 +24,13 @@
 
 My day started with a sleepless night. I woke up at 7:am and started getting dressed up. I went from my home at 8:15am and reached at exactly 8:50am. Then, I waited to meet someone I know earlier. But unfortunately I got no one. So. then, I went to a [hall](https://www.facebook.com/photo.php?fbid=888709246633124&set=pb.100064821697496.-2207520000&type=3) where the kirtan and ardas was going to held. i took off my shoes and washed my hands. Then, I covered my head and moved inside the hall. The kirtan and ardas made me feel so good and relaxing.
 
+![](450834863_889782419859140_3241998323133355721_n.jpg)
+
 It made me feel that I didn't choose this but Waheguru Ji had chosen it for me. So, with a brave heart and strong mind I attended it and came outside the hall after it ended. Then I took the refreshments offered by the college which were really good. Then, I met my one friend who was in my class during 11th-12th in my [school](https://www.google.com/search?q=bvm+kithclu+nagar&rlz=1C1CHBF_enIN1051IN1051&oq=bvm+kithclu+nagar&gs_lcrp=EgZjaHJvbWUyBggAEEUYOTISCAEQLhgNGK8BGMcBGIAEGI4FMgkIAhAAGA0YgAQyCQgDEAAYDRiABDIICAQQABgWGB4yDQgFEAAYhgMYgAQYigUyDQgGEAAYhgMYgAQYigUyDQgHEAAYhgMYgAQYigUyCggIEAAYgAQYogTSAQg3NjMwajBqNKgCALACAA&sourceid=chrome&ie=UTF-8). After meeting him, I went to the [Auditorium](https://gndec.ac.in/cultural/?q=node/9). Before entering the auditorium, I got a file bag, which was for all students. In the bag, There was brochure about the college, an invitation letter for me, a pen and a notepad. I took it and went inside the auditorium.
 
 The auditorium was very calm, pleasent and was creatively structured. Then, all teachers and seniors came up there. After it, Our respected Principle sir, [Dr. Sehijpal Singh Guru](https://fb.watch/tigo5j7WBQ/), Our Director sir, [NSET S.Inderpal Singh](https://fb.watch/tigpSmuCit/) along with our alumna [Er. Jiwandeep Singh](https://fb.watch/tigjZwZe3z/), PCS officer, came there to greet and interact with all of us. First, Our principal sir came and motivated us to make the best use of this platform. Then, Our director sir introduced us to the legendry and illustrious history of this [instituion](https://www.gndec.ac.in/), emphasizing its 100 years of shaping brilliant minds. He highlighted the first 36 years, which were dedicated in the establishment of this [instituion](https://www.gndec.ac.in/).
+
+![](450861167_889782616525787_9205030083936147109_n.jpg)
 
 Then, our one of the alumni, now as a PCS officer, who was the "Guest Of Honor" of that day, illustrated us the imporatnce of "what", "how" and most imporant "My why". One of the great question which we all should ask from ourselves at the beginning of anything so that we can properly, carefully, whole heartedly and with a great self-confidence do the task we want to do. he explained us the real meaning of an __"ENGINEER"__ that is _creators_. As a creator, an engineer creates various things to solve a problem in very quick and creative way.\
 He also made us feel about how significant is an _oppurtunity_.
@@ -31,6 +51,8 @@ ___
 > INDUCTION PROGRAM DAY 
 
 The day began with a sleepful night as I was tired and I went to college. I went to the same [Auditorium](https://gndec.ac.in/cultural/?q=node/9) and took a seat. The program started with [Mr. Arvind Dhingra](https://gndec.ac.in/faculty/?id=68) sir, head of the Technical activities, pass out of [NIT JAIPUR](https://www.google.com/search?sca_esv=1af7de384805fe35&sca_upv=1&rlz=1C1CHBF_enIN1051IN1051&sxsrf=ADLYWIJRj8lU4wRCnhGTHBoZ1MBjn_64qg:1720950747389&q=NIT+JAIPUR&source=lnms&fbs=AEQNm0BKxFXqFZETuC92mLOmXO9xJMdcEc6vsS8xotR_o6JIE2lxJVbfbQf0QBF0bvfl3GFNBPTQACMdFh6XPuV1Z0Eg9hjj1mCoiKv3FGCZSoL8LFWndMdM2XR4aGD0cSNlCtcWfG2Uxx1VHbESZZGtTLqJIpWorIEiBwoLHBotrxsca8c17DXljhODP05SZ-xKH05k1jwUlGV8PNmYih-FkegBBuFe9w&sa=X&ved=2ahUKEwimlOWPoaaHAxV7SGcHHTklAhkQ0pQJegQIFBAB&biw=1536&bih=730&dpr=1.25). He explained about how life is all about changing and growing and how will we all can transform. He said it could be done by ["I"](https://media.istockphoto.com/photos/fire-letter-on-black-background-picture-id531734101?k=6&m=531734101&s=612x612&w=0&h=TwtdHdTjv6wlWWFJcOV4lsd3aZiKcupxh_Qy04TLNOE=), which means by changing our mindset and perspective, we all can change and grow. He said that the best song of the world is our own heartbeat and start this college journey with [GNDEC](https://gndec.ac.in/) with a "YES" instead of a "NO" and have faith on this [institution](https://gndec.ac.in/).
+
+![](453046124_898519958985386_3390307006617584852_n.jpg)
 
 He said that everyone is already good in their respective domains but we should try to be a great one and for that we should invest our time in extra curricular along with the regular curricular. He said, invest your time, instead of wasting it. __And, by listening to this from sir, I decided to be a legendry who can be great in anything whether it is academics, sports or any other thing__.
 
@@ -74,6 +96,8 @@ Then, at last, he ended the session by emphasising us about __"3P's of Life"__
 
 After this session, One sir came and breifed us about the college, faculties, student council, scholarship and various more things.
 
+![](450677661_889796439857738_3806641290681030495_n.jpg)
+
 Then came a turning point for me and some of more students like me. [Dr. Hardeep Singh Rai](https://gndec.ac.in/faculty/?id=268),  The controller of examination, came to mentor all of us.First, he surveyed about how we all think about examinations in just one or two words. I wrote " Challenge and Motivation", i am saying this honestly because by these two words I got strength to overcome the fear of it. His perspective, strategies and vision on examinations was fascinating and inspirational.
 
 After, ending sessiion, he proposed all of us that they are giving a chance to 10 students to get mentored under him and get complete guidence about coding. Without any doubt, I went forward to sir to get this oppurtunity. But more that 50 students wanted to be a part of it. So, sir decided to make Telegram group and I entered the group. Sir gave us a task which was to make portfolio using markdown, which I partially completed at that time but now I have done it.
@@ -88,7 +112,11 @@ ___
 > CLASSES DAY
 
 The day began with the same routine and I went to college. Today, students have to attend their classes for the first time. Everyone checked their schedule which was sent it on Whatsapp group earlier. I reached outside the auditorium and 
-went to the stairs side. I reached at first floor and then started finding my classroom. It was a very long corridor. Then, I found the classroom where my first lecture was going to held. The first lectures was taken by our seniors. In rhe lecture, they enlighten us about Chatgpt and Excel. Majorly, the Lecture was on Excel. They teached us variuos things about it, new functions about which I was also not aware earlier. Then after finishing, it they as our friend said that if we got in any trouble related to college or studies, we can contact them, ask them and get a solution from them.
+went to the stairs side. I reached at first floor and then started finding my classroom. It was a very long corridor. Then, I found the classroom where my first lecture was going to held. The first lectures was taken by our seniors.
+
+![](451655447_894180862752629_3556207598399396540_n.jpg)
+
+ In the lecture, they enlighten us about Chatgpt and Excel. Majorly, the Lecture was on Excel. They teached us variuos things about it, new functions about which I was also not aware earlier. Then after finishing, it they as our friend said that if we got in any trouble related to college or studies, we can contact them, ask them and get a solution from them.
 
 I personely really enjoyed it. Then, I went for my second lecture which was of mathematics, my faourite one. There I meet a faculty of mahtematics, [Mr. Sanchit Mehra](https://gndec.ac.in/faculty/?id=401), assistant professor, applied sciences department. He was very good, cooperative adn humorous. He, introduced, himself and then ask to tell our names individually. Then, after introductuion process, he started teaching about derivatives. Then, the class got over.
 
@@ -110,10 +138,13 @@ ____
  
 The day began with a fear of fever as I was suffering from cough and cold but still made up my mind ready to go to college whatever it takes. So, today was again our "INDUCTION PROGRAM". 
 
+![](452533670_897290755774973_5261164245846598769_n.jpg)
+
 The day started with the lecture of [Dr. Randhir Singh](https://gndec.ac.in/faculty/?id=75) sir, associate professor, breifed us about the major tasks which we all students have to do. He said that all the students must have to give Profficiency Test of English, Profficiency Test of Mathematics, Report making about your experience at GNDEC and INDUCTION PROGRAM and a E-certificate about any skill. These all tasks are useless for some people, but from my perspective, these all things can uplift are potential in a very good way. He also instructed us about the [Github pages](https://github.com/) and how to make repositry on it in detail. he also mentioned about [MARKDOWN](https://www.markdownguide.org/cheat-sheet/).
 
-
 Then, [Dr. Pyare Lal Garg](https://scontent.fixc4-3.fna.fbcdn.net/v/t39.30808-6/451339540_892343842936331_7545701491075788439_n.jpg?_nc_cat=104&ccb=1-7&_nc_sid=833d8c&_nc_ohc=8irMyC9G028Q7kNvgFXxJrs&_nc_ht=scontent.fixc4-3.fna&oh=00_AYB0uMxa-9PYgXIuqZlQtUKXCEATVnM00v-o79LKP5BB4g&oe=66A1C343), adviser to Punjab Congress president Navjot Singh Sidhu. Garg, 73, who retired as professor of paediatric surgery in 2002 and is known for his outspoken nature, has worked both with the Shiromani Akali Dal-Bharatiya Janata Party (SAD-BJP) as well as Congress governments in Punjab.
+
+![](451339540_892343842936331_7545701491075788439_n.jpg)
 
 First, He greeted everyone with good wishes and blessings, also feel grateful to GNDEC and faculty members of the college for giving him the oppurtunity to speak in GNDEC college amongst the students. Seeing the students, he reminded his old days and said about teaching which was full of togetherness in his time. Many new changes have been implemented in the world but human behaviour is still same and ability and power of attaining courage to be great , not just to be good or average. 
 
@@ -640,6 +671,61 @@ He mentioned three points based on his experiences:
 
 Then in the end, he said that we should love ourselves and we sholud follow these points mentioned above which can bring
 a major change in our journey of life. 
+
+![](452533560_897290572441658_5046741642156948558_n.jpg)
+
+Then, came the next speaker, [ER. Lakhveer Singh Khana](https://gndec.ac.in/faculty/?id=270), assistant professor, from mechanical department. \
+He was here to inform us about [CML](https://cml.gndec.ac.in/) (Center for Multi-Faceted Learning). 
+
+- __ABOUT CML :__ 
+
+![](about-us.jpg)
+  - _Center for Multi-Faceted Learning is a hub for imparting ethical and general-purpose knowledge in terms of education, morality, and humility. The concept of this program is to utilize all the capabilities of the students to negotiate and clinch top-quality communication skills, problem-solving skills, and develop distinctive personalities. This absolutely helps students to identify their fields of interest. A lot of activities under this updated society surely help the students to explore and have a broader view of their selective fields. In addition to this center also encourage students for enrolling in MOOCs and get involved in self-learning which will lead to incremental knowledge and development of interest in different fields. Being a part of this club an individual can primarily build not only his/her personal individualization but also enrich their mindset with optimistic thoughts, constructive behavior, and confidence._ 
+
+He said that this batch is wonderful as it has unique from the previous batches. But, a major problem of this batch noticed by him is that the students are lacking in interaction. So, he advised to us to develop and improve our communication skills in order to interact with the teachers properly.\
+He said that clubs and societies are here for the enhancement of the students and there motive is to develop a skill within the students of learning in any domain. \
+He also suggested to take interships under companies which are not in India and they are free for the deserving students. \
+He also told us about [NPTEL](https://swayam.gov.in/nc_details/NPTEL), through which we can study online about the regular curriculum as well as in extra curriculur of the college. 
+
+Then, there was introductory meet of [Causmic club](https://causmic.gndec.ac.in/), in which members of the causmic club introduced us about this club. 
+
+![](photo_2024-07-28_19-11-52.jpg)
+
+- __VISION__
+  - To learn something from everything in its physical essence; the essence, which is equally enlightening and dark.
+
+- __MISSION__
+  - We, the club members, believe in rational and reason-based thinking and reasoning and wish to promote a culture of critical thinking. We strive to provide a platform for students from all departments for sharing conscience about universe so that a community of innovators is cherished.
+
+- __ABOUT CLUB__
+  - Causmic Club envisions to learn something from everything in its physical essence, which is equally enlightening and dark. We, the club members, believe in rational and reason-based thinking and reasoning and wish to promote a culture of critical thinking. We strive to provide a platform for students from all departments for sharing conscience about universe so that a community of innovators is cherished.
+
+- __FACULTY MEMBERS__
+  - __PATRON :__
+    -   Dr. Sehijpal Singh, Principle of Guru Nanak Dev Engineering College
+    - Dr. Harpreet Kaur Grewal, Head of Applied Sciences Department.
+  
+        ![](download.jpg)
+        ![](download.jpeg)
+  - __COORDINATOR :__
+    - Dr. Randhir Singh, Associate Professor.
+   
+      ![](images.jpeg)
+
+  -  __CO-COORDINATOR :__
+     - Dr. Rajvir Kaur, Assistant Professor.
+
+      ![](Rajvir kaur.jpeg)
+      
+
+
+
+
+
+
+
+
+
 
 
 
